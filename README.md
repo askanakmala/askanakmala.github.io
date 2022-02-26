@@ -1,1 +1,0 @@
-# askanakmala.github.io
